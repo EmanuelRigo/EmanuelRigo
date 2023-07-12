@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on **Videoteca**
 
-- ⚡ Fun fact **I'm MetalGear fan**
+- ⚡ Fun fact **MetalGear fan**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
